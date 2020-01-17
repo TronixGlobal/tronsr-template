@@ -1,1 +1,1 @@
-A short introduction about your team
+TRONcash is a top provider of TRX payment services. We are offering sustainable and scalable solutions for companies and individuals. We build our solutions on the TRON netwrok and tailored to your specifications. By closely listening to our potential clientele and understanding their expectations with our services, we analyze the information and customize our offering to changing market needs.
